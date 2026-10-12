@@ -2,6 +2,7 @@
 
 **AI Researcher & Computer Science Engineer** 
 Focused on Multimodal Vision-Language Models, Deep Learning, and RAG architectures.
+Interested in application of AI in Life Sciences.
 
 ---
 
