@@ -167,7 +167,7 @@ I welcome discussions around research ideas, experimental methodologies, model a
 
 📧 Email: vedansh.kr31@gmail.com
 💻 GitHub: @am3nek
-🔗 LinkedIn: [Vedansh Kumar]{https://www.linkedin.com/in/vedansh-kumar-141a65250/?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BGOM3a9RmTQa4vnw6GUodtA%3D%3D}
+🔗 LinkedIn: [Vedansh Kumar](https://www.linkedin.com/in/vedansh-kumar-141a65250/?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BGOM3a9RmTQa4vnw6GUodtA%3D%3D)
 
 ⸻
 
